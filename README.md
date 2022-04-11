@@ -7,3 +7,4 @@ Servus! Teamwork ist Service!
 Teamwork ist Wichtig!!!
 =======
 Teamwork ist wichtig!
+Teamwork ist unausweichbar!
